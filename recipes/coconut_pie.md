@@ -1,37 +1,20 @@
 # Coconut Pie
+
 Inspired by https://www.sugarfreemom.com/recipes/sugar-free-crustless-coconut-custard-pie-dairy-free-gluten-free-low-carb/ and https://sallysbakingaddiction.com/coconut-cream-pie/.
-
-Ingredients
-
-
-
-pinch salt
-Get IngredientsPowered by Chicory
-Instructions
-Preheat oven to 350 degrees.
-With an electric mixer or stand mixer, combine milk, eggs, vanilla and stevia.
-Beat on medium speed for 1-2 minutes until thoroughly combined.
-Pour in coconut and mix on low speed for 1 minute.
-Add almond flour and mix on low speed for 1 minute.
-Spray a 9 inch pie plate with nonstick cooking spray.
-Pour mixture into pie plate.
-Bake 45-55 minutes until toothpick in center comes out clean.
-Let cool on stove. Refrigerate.
-
 
 ## Ingredients
 
-1 unbaked Flaky Pie Crust (preferably keto)*
-4 large eggs
-1/4 cup (30g) cornstarch
-1 (14 ounce) can full fat coconut milk*
-1 cup (240ml) half-and-half or almond milk or more coconut milk
-1 1/2 teaspoons coconut stevia
-1/4 teaspoon salt
-1 cup (80g) shredded coconut
-2 Tablespoons (30g) coconut oil, softened to room temperature
-1 teaspoon pure vanilla extract
-optional: 1/2 teaspoon coconut extract
+- 1 unbaked Flaky Pie Crust (preferably keto)*
+- 4 large eggs
+- 1/4 cup (30g) cornstarch
+- 1 (14 ounce) can full fat coconut milk*
+- 1 cup (240ml) half-and-half or almond milk or more coconut milk
+- 1 1/2 teaspoons coconut stevia
+- 1/4 teaspoon salt
+- 1 cup (80g) shredded coconut
+- 2 Tablespoons (30g) coconut oil, softened to room temperature
+- 1 teaspoon pure vanilla extract
+- optional: 1/2 teaspoon coconut extract
 
 ## Instructions
 ### Pie crust
