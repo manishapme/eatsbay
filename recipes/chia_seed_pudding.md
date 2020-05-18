@@ -15,4 +15,27 @@ Also, good to portion out into 6 mason jars for calorie counting
 - 6 tbs slivered almonds
 
 ## Directions
-Whisk together all liquid ingredients.
+Whisk together all liquid ingredients. in 6 mason jars or containers, fill each with 1tbs chia, 1tbs almonds, 2tbs berries, and 2.7 tbs liquid
+
+## Nutrition Facts
+### Coconut
+Servings 6.0
+Amount Per Serving
+calories 180
+% Daily Value *
+Total Fat 14 g	22 %
+Saturated Fat 6 g	30 %
+Monounsaturated Fat 0 g
+Polyunsaturated Fat 3 g
+Trans Fat 0 g
+Cholesterol 0 mg	0 %
+Sodium 65 mg	3 %
+Potassium 67 mg	2 %
+Total Carbohydrate 10 g	3 %
+Dietary Fiber 6 g	24 %
+Sugars 2 g	
+Protein 5 g	9 %
+Vitamin A	0 %
+Vitamin C	1 %
+Calcium	90 %
+Iron	3 %
