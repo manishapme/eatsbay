@@ -8,9 +8,8 @@ Inspired by https://www.tasteofhome.com/recipes/crustless-spinach-quiche/
 - 1 cup sliced fresh mushrooms
 - 1 tablespoon vegetable oil
 - 1 package (10 ounces) frozen chopped spinach, thawed and well drained
-- 2/3 cup finely chopped fully cooked ham
-- 5 large eggs
-- 3 cups shredded Muenster or Monterey Jack cheese
+- 6 large eggs
+- .5 cups shredded Muenster or Monterey Jack cheese
 - 1/8 teaspoon pepper
 
 ## Directions
@@ -24,4 +23,24 @@ Check out 10 of our best quiche recipes.
 
 ### Nutrition Facts
 
-1 piece: 251 calories, 18g fat (10g saturated fat), 164mg cholesterol, 480mg sodium, 4g carbohydrate (2g sugars, 1g fiber), 18g protein.
+Nutrition Facts
+Servings 4.0
+Amount Per Serving
+calories 234
+% Daily Value *
+Total Fat 16 g	25 %
+Saturated Fat 5 g	27 %
+Monounsaturated Fat 1 g
+Polyunsaturated Fat 2 g
+Trans Fat 0 g
+Cholesterol 278 mg	93 %
+Sodium 254 mg	11 %
+Potassium 576 mg	16 %
+Total Carbohydrate 9 g	3 %
+Dietary Fiber 3 g	11 %
+Sugars 3 g	
+Protein 16 g	32 %
+Vitamin A	63 %
+Vitamin C	48 %
+Calcium	35 %
+Iron	15 %
