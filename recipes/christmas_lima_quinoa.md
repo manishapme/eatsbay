@@ -20,7 +20,7 @@ Inspired by recipe in Rancho Gordo, Heirloom Beans. This version is adapted for 
 2. Cook lima beans for 20 min in instapot, covered with water.
 3. Cook quinoa for 8 min, in 1.25 c water
 4. Tear Kale into pieces and wilt in microwave for 1 minute.
-5. Mix dressing ingrediants in jar and shakewell.
+5. Mix dressing ingredients in jar and shakewell.
 6. Mix all items together.
 
 ## Nutrition Facts
