@@ -1,17 +1,18 @@
 # Polenta in an Instantpot
 
 # Ingredients
-2 tbs vegetable oil
-1 onion
-1 cup mushrooms
-1 bay leaf
-1 tsp salt
-1 tsp oregano
-1 tsp thyme
-1 tsp basil
-ground pepper
-1 cup polenta
-5 cup water
+- 2 tbs vegetable oil
+- 1 onion
+- 1 cup mushrooms
+- 1 bay leaf
+- 1 tsp salt
+- 1 tsp oregano
+- 1 tsp thyme
+- 1 tsp basil
+- ground pepper
+- 1 cup polenta
+- 5 cup water
+Note: If you want to add a scoop of protein powder to the recipe increase the water by 1 cup.
 
 # Directions
 1. With instantpot on sautee, sautee everything except polenta and water for 3-5 min
