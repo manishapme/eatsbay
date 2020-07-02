@@ -19,16 +19,15 @@
 
 # Instructions
 
-Heat the olive oil and butter in an extra large ovenproof skillet over medium heat.
-Once heated, add the cabbage, onion, celery, garlic, sea salt and black pepper to the pan.
-Sauté until the vegetables are crisp tender – about 10 minutes. Add mushrooms
-Mix in the dill, mustard powder, lemon zest, and lemon juice.
-Pour the heavy cream and 1 cup Parmesan cheese into the pan. Mix in and keep stirring until the cheese has melted and combined with the heavy cream.
-Reduce heat to medium low and let simmer to allow the sauce to thicken.
-Once the sauce has started to thicken, stir in the tuna and the peas.
-Sprinkle the remaining Parmesan over the top of the dish and transfer to the oven.
-
-Broil on high for 3-5 minutes or until the Parmesan on top has made a golden brown crust.
+1. Heat the olive oil and butter in an extra large ovenproof skillet over medium heat.
+2. Once heated, add the cabbage, onion, celery, garlic, sea salt and black pepper to the pan.
+3. Sauté until the vegetables are crisp tender – about 10 minutes. Add mushrooms
+4. Mix in the dill, mustard powder, lemon zest, and lemon juice.
+5. Pour the heavy cream and 1 cup Parmesan cheese into the pan. Mix in and keep stirring until the cheese has melted and combined with the heavy cream.
+6. Reduce heat to medium low and let simmer to allow the sauce to thicken.
+7. Once the sauce has started to thicken, stir in the tuna and the peas.
+8. Sprinkle the remaining Parmesan over the top of the dish and transfer to the oven.
+9. Broil on high for 3-5 minutes or until the Parmesan on top has made a golden brown crust.
 
 # Nutrition
 
