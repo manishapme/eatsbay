@@ -7,7 +7,7 @@ and this https://chocolatecoveredkatie.com/healthy-chocolate-pudding-recipe/
 - 2 cups milk (1 can full fat coconut milk + 3.5oz. almond milk)
 - 1/4 cup raw cacao powder
 - 1/8 tsp salt
-- 1/3 cup pure maple syrup
+- 1/3 cup pure maple syrup (or 6 packets Sweet Leaf stevia)
 - 1/2 cup almond milk + 3 tbs cornstarch
 - 1 tsp pure vanilla extract
 - 1/4 cup Lily's chocolate chip
