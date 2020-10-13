@@ -5,7 +5,7 @@
 - 1 tsp minced garlic
 - 1/2 tsp salt (more to taste)
 - Pepper
-- 1 can cocnut milk
+- 1 can coconut milk
 - 3 tbsp red curry paste
 - 1/4 cup vegetable broth
 - 1/2 tsp turmeric powder
