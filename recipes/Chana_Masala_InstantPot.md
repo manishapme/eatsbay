@@ -28,4 +28,4 @@
 
 4. Once the cooking is complete, release the pressure naturally for 5 minutes, then quick-release the remaining pressure. Check to make sure the chickpeas are soft enough for your liking; if they are still too hard, cook them on high pressure for another 5 minutes.
 
-6 Remove the lid and stir in the chopped greens, adding a little more water if the stew is dry. Using the Sauté setting on High, simmer until the greens are wilted, about 2 minutes. Taste and add more salt and lemon juice, if needed. Stir in the cilantro and serve.
+5. Remove the lid and stir in the chopped greens, adding a little more water if the stew is dry. Using the Sauté setting on High, simmer until the greens are wilted, about 2 minutes. Taste and add more salt and lemon juice, if needed. Stir in the cilantro and serve.
