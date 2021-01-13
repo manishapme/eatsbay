@@ -21,7 +21,7 @@
 
 # Instructions
 
-Using the Sauté function on High, heat 2 tablespoons (30 mL) oil in the inner pot for 1 minute, until shimmering. Add the onions; cook, stirring occasionally, for about 10 minutes, occasionally adding 1 tablespoon (15 mL) water if the bottom of the pot gets brown and the onion begins to stick. Cook the onion until deeply browned.
+1. Using the Sauté function on High, heat 2 tablespoons (30 mL) oil in the inner pot for 1 minute, until shimmering. Add the onions; cook, stirring occasionally, for about 10 minutes, occasionally adding 1 tablespoon (15 mL) water if the bottom of the pot gets brown and the onion begins to stick. Cook the onion until deeply browned.
 
 Push the onion to the side of the pot. Add the remaining 1 tablespoon (15 mL) oil and heat it for 1 minute, until shimmering. Stir in the mustard seeds, coriander, garam masala, cumin, salt and turmeric; cook for about 1 minute, until the mustard seeds begin to pop. Stir in the amchur, garlic, ginger and chile; cook for 1 minute, until fragrant.
 
