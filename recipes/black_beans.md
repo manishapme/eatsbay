@@ -27,3 +27,4 @@ Here is guaranteed good black beans in the Instapot.
 5. Press “cancel” to stop sautéing 
 6. Put on lid, close tight and make sure pressure release is closed
 7. Press “pressure cook”, choose high, and set for 25 minutes by using the plus sign
+8. Must leave time (extra 10 minutes) to allow to pressure to release on it's own. Ensures beans are cooked but not mushy.
