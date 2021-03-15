@@ -15,7 +15,7 @@
 - 1/2 teaspoon salt
 - 1/4 teaspoon black pepper
 
-#Instructions
+# Instructions
 1. In a Dutch oven or soup pot, sauté the garlic and onions in olive oil for a minute or two
 2. Add the chopped sweet potatoes, sliced carrots, and optional chopped bell pepper to the pan and cook until the onions are soft, about 5 to 6 minutes.
 3. Reduce the heat to medium-low and add in all of the remaining ingredients, stirring to combine well.
