@@ -3,13 +3,13 @@
 - 3 TBL vegetable oil, divided
 - 1 onion, ﬁnely chopped
 - Water
-- 2 tsp mustard seeds
-- 2 tsp ground coriander
-- 2 tsp Garam Masala (check in freezer)
-- 1 tsp ground cumin
-- 2 tsp kosher salt (approx.)
-- 1 tsp ground turmeric
-- 2 tsp freshly squeezed lemon juice (approx.)
+- 1 tbs mustard seeds
+- 1 tbs ground coriander
+- 1 tbs Garam Masala (check in freezer)
+- 2 tsp ground cumin
+- 1 tbs kosher salt (approx.)
+- 2 tsp ground turmeric
+- 2 tsp freshly squeezed lemon juice (approx.) or 1/4 tsp citric acid
 - 2 tsp minced garlic
 - 1 tsp minced ginger
 - 1 serrano chile, minced
