@@ -4,12 +4,13 @@
 - 1/2 cup tapioca flour
 - 1/2 almond flour
 - 1 Tablespoon Baking Powder
-- 1 teaspoon Kosher Salt
+- 1 1/2 teaspoon Kosher Salt
 - ½ teaspoons Ground Cinnamon
 - ¼ teaspoons Ground Nutmeg
-- 1 cup Cornmeal
+- 1 1/2 cup Cornmeal
 - 2 whole Eggs
 - 1 cup Pumpkin Pie Mix
+- 1/4 cup milk
 - ¼ cups coconut oil
 
 ## Directions
