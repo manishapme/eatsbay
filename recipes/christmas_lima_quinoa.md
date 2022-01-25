@@ -3,7 +3,7 @@ Inspired by recipe in Rancho Gordo, Heirloom Beans. This version is adapted for 
 
 ## Ingredients
 - 5 small beets
-- 1 cup quinoa
+- 1/2 cup quinoa
 - 1/2 cup christmas lima beans
 - 1/2 red onion, or pickled onions (thinly sliced)
 - 1 avocado
@@ -14,11 +14,12 @@ Inspired by recipe in Rancho Gordo, Heirloom Beans. This version is adapted for 
 - 6 tbs olive oil
 - 1 tsp salt
 - ground pepper
+- 1/4 roasted pepitas or sunflower seeds (optional)
  
 ## Directions
 1. Cook beets for 12 min in instapot, covered with water.
 2. Cook lima beans for 20 min in instapot, covered with water.
-3. Cook quinoa for 8 min, in 1 c water
+3. Cook quinoa for 8 min, in 1/2 c water in instant pot.
 4. Tear Kale into pieces and wilt in microwave for 1 minute or toss with dressing to wilt before assembling all ingredients.
 5. Mix dressing ingredients in jar and shakewell.
 6. Mix all items together.
@@ -27,21 +28,5 @@ Inspired by recipe in Rancho Gordo, Heirloom Beans. This version is adapted for 
 
 Servings 8.0
 Amount Per Serving
-calories 333
-% Daily Value *
-Total Fat 15 g	23 %
-Saturated Fat 2 g	9 %
-Monounsaturated Fat 9 g
-Polyunsaturated Fat 1 g
-Trans Fat 0 g
-Cholesterol 0 mg	0 %
-Sodium 441 mg	18 %
-Potassium 799 mg	23 %
-Total Carbohydrate 44 g	15 %
-Dietary Fiber 10 g	40 %
-Sugars 15 g	
-Protein 10 g	20 %
-Vitamin A	106 %
-Vitamin C	82 %
-Calcium	8 %
-Iron	20 %
+calories 290
+
