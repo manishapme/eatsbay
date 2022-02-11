@@ -5,9 +5,9 @@ Inspired by recipe in Rancho Gordo, Heirloom Beans. This version is adapted for 
 - 5 small beets
 - 1/2 cup quinoa
 - 1/2 cup christmas lima beans
-- 1/2 red onion, or pickled onions (thinly sliced)
+- 1/2 red onion, or pickled onions (diced into small pieces)
 - 1 avocado
-- 1 bunch dinosaur kale
+- 1 bunch dinosaur kale (torn into bite size pieces)
 - 2 tbs lemon juice
 - 1 tbs cider vinegar
 - 3 drops stevia (or 1 tsp honey)
