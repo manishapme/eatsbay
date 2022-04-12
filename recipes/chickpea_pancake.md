@@ -23,11 +23,11 @@ I've only made this once. Will probably like it spicier. Make it in the oven lik
 
 Would be great with a chutney. Still have to enter measurements for mom's cilantro chutney. Here as placeholder:
 Blend: 
-- Cilantro
+- Cilantro, 1 bunch of leaves, remove stems
 - 1/4 cup coconut
 - 1/2 teaspoon salt
-- 1/2 teaspoon red pepper
+- 1/2 teaspoon red pepper or fresh serrano
 - 1/4 cup cashews
 - 1/2 teaspoon mango powder
 - 1/2 teaspoon cumin
-- 1/2 cup water
+- 2 tbs water, more as needed
