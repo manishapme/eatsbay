@@ -31,3 +31,5 @@ Blend:
 - 1/2 teaspoon mango powder
 - 1/2 teaspoon cumin
 - 2 tbs water, more as needed
+- 1 tbs lemon juice
+- 4 drops stevia (to taste)
