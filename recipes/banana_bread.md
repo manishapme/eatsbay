@@ -8,8 +8,8 @@ Ingredients:
 - 1 teaspoon baking soda
 - 1 teaspoon baking powder
 - 1/2 teaspoon kosher salt
-- 1/2 cup coconut oil
-- 1 cup of yogurt – full fat (Straus Plain)
+- 1/4 cup coconut oil (halved from original)
+- 1/2 cup of yogurt – full fat (Straus Plain)
 - 1/2 cup brown sugar
 - 1 egg
 - 3 medium-size bananas (overripe)
