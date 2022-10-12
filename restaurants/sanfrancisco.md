@@ -1,4 +1,5 @@
-## Chinese
+## Asian
 - [Chili House](https://www.chilihousesf.com/)
-## Indian
 - [Besharam](https://besharamrestaurant.com/)
+- [Koja Kitchen](https://www.kojakitchen.com/san-francisco-clement)
+- [Ramen Yamadaya](https://www.ramen-yamadaya.com/menu-san-francisco)
