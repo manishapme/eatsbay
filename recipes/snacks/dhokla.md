@@ -10,7 +10,7 @@ Based off of https://www.chefkunalkapur.com/recipe/dhokla/
 - 1 cup Curd
 - 1tsp Chilli Powder
 - 1tbs Ginger
-- 2tbsp Lemon juice
+- 1 tbsp Lemon juice
 - 1tsp Baking Soda
 
 ## Directions
