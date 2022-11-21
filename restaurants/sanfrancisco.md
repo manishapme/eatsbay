@@ -1,3 +1,6 @@
+## Italian
+- [Original Joe's](https://originaljoes.com/north-beach/)
+
 ## Asian
 - [Chili House](https://www.chilihousesf.com/)
 - [Besharam](https://besharamrestaurant.com/)
