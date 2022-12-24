@@ -9,3 +9,6 @@
 
 ## Mexican
 - [Donaji](https://www.donajisf.com)
+
+## Pizza
+- [The Laundromat](thelaundromatsf.com)
