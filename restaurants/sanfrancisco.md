@@ -5,6 +5,8 @@
 - [Chili House](https://www.chilihousesf.com/)
 - [Koja Kitchen](https://www.kojakitchen.com/san-francisco-clement)
 - [Ramen Yamadaya](https://www.ramen-yamadaya.com/menu-san-francisco)
+- Good Luck Dim Sum, Clement
+- To try (Dragon Beaux, Good Mong Kok Bakery, Palette Tea House, Osmanthus Dim Sum Lounge)
 
 ## Indian
 - [Besharam](https://besharamrestaurant.com/)
