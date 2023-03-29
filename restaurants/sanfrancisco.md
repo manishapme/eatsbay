@@ -11,6 +11,7 @@
 ## Indian
 - [Besharam](https://besharamrestaurant.com/)
 - [Ocean Indian](https://www.oceanindiancuisine.com/)
+- [Keeva](https://keevasf.com/)
 - [Tilak](https://tilaksf.com/)
 
 ## Mexican
