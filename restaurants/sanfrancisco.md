@@ -16,6 +16,7 @@
 
 ## Mexican
 - [Donaji](https://www.donajisf.com)
+- Tacolicous
 
 ## Pizza
 - [The Laundromat](thelaundromatsf.com)
