@@ -11,12 +11,15 @@ Adapted from the Art of Indian Vegatarian Cooking
 - 1 1/4 tsp salt
 - 1 tsp cumin
 - 2 tbs ghee or coconut oil
+- 1 c raw peanuts ( optional)
+- 1/2 c quinoa plus 1 c water ( optional )
 - chopped cilantro for garnish
 
 ## Directions
 1. Sort, rinse and drain beans
 2. Using instantpot, set to sautee
 3. Add oil and all spices and salt. Sautee for 1-2 minutes
-4. Turn off suatee, add water and beans
-5. Pressure cook on high for 25 min
-6. Serve with cilantro on top
+4. Turn off suatee, add water and beans.
+5. Also add optional peanuts or quinoa.
+6. Pressure cook on high for 25 min
+7. Serve with cilantro on top
