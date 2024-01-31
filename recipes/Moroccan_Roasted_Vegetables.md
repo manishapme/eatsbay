@@ -14,7 +14,7 @@
 - 1 tbs turmeric
 - 1 tbs cinnamon
 - 1 tbs paprika
-- 1/2 tbs cayenne
+- 1/2 tsp cayenne
 - 2 tsp salt
 - Feta
 - Toasted almonds
