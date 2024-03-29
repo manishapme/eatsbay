@@ -5,7 +5,7 @@
 - Water
 - 1 tbs mustard seeds
 - 1 tbs ground coriander
-- 1 tbs Garam Masala (check in freezer)
+- 1 tbs Garam Masala
 - 2 tsp ground cumin
 - 1 tbs kosher salt (approx.)
 - 2 tsp ground turmeric
