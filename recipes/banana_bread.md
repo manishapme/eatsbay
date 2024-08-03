@@ -10,7 +10,7 @@ Ingredients:
 - 1/2 teaspoon kosher salt
 - 1/4 cup coconut oil (halved from original)
 - 1/4 cup of yogurt – full fat (Straus Plain)
-- 1/3 cup brown sugar ( or 1/2 tsp liquid stevia)
+- 1/3 cup brown sugar ( or 1/4 tsp liquid stevia)
 - 1 egg
 - 3 medium-size bananas (overripe)
 - 2 teaspoons vanilla
