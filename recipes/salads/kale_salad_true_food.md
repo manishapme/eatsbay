@@ -4,7 +4,7 @@
 - ½ cup Extra-Virgin Olive Oil
 - ¼ cup Freshly Squeezed Lemon Juice
 - 3  Garlic Cloves, mashed
-- 1 tsp Salt
+- 1/2 tsp Salt
 - 1/2 tsp Red Pepper Flakes
 - 1/2 tsp ground black pepper
 - 2 Bunches Lacinato Kale (about 14 ounces), ribs removed and leaves sliced into 1/4-inch shreds
