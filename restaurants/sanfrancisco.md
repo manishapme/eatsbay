@@ -3,7 +3,6 @@
 - [China Live](https://chinalivesf.com/)
 - [Koja Kitchen](https://www.kojakitchen.com/san-francisco-clement)
 - [Osmanthus Dim Sum Lounge](https://www.osmanthusdimsum.com/)
-- [Ramen Yamadaya](https://www.ramen-yamadaya.com/menu-san-francisco)
 - Good Luck Dim Sum, Clement
 - To try (Dragon Beaux, Good Mong Kok Bakery, Palette Tea House, )
 
@@ -12,6 +11,7 @@
 
 ## Cafes
 - [Cinderella Cafe](https://cinderellabakery.com/)
+- [Tartine Manufactory](https://tartinebakery.com/san-francisco/manufactory)
 
 ## Indian
 - [Besharam](https://besharamrestaurant.com/)
@@ -21,6 +21,10 @@
 
 ## Italian
 - [Original Joe's](https://originaljoes.com/north-beach/)
+
+## Japanese
+- [Ramen Yamadaya](https://www.ramen-yamadaya.com/menu-san-francisco)
+- [Roka Akor](https://rokaakor.com/san-francisco/)
 
 ## Mexican
 - [Donaji](https://www.donajisf.com)
