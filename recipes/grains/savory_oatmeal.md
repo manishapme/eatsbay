@@ -6,7 +6,7 @@
 - 2 tbs seasame oil
 - 3 tbs soy sauce
 - 2 tbs Miso and Easy Original Broth
-- 1/2 c steal cut oats
+- 1/2 c steel cut oats
 - 2 - 3 crown broccoli chopped
 - 1 block of firm tofu drained and cubed
 - 8 oz. crimini mushrooms chopped
