@@ -18,3 +18,5 @@
 3. Add rest of ingredient excluding green onions.
 4. Set to pressure cook, low, for 30 min.
 5. Serve in bowls topped with green onions.
+
+Can also top with an egg or sesame seeds or walnuts for more protein.
