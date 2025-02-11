@@ -1,7 +1,7 @@
 # Pesto
 
 ## Ingredients
-- 3 cups basil leaves
+- 3 cups basil leaves (or parsley if using walnuts)
 - 1/2 c nuts (walnut or pine) lightly toasted
 - 4 cloves garlic or 1 tsp granulated
 - 1/2 c olive oil
