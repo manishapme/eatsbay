@@ -21,5 +21,5 @@ Adapted from the Art of Indian Vegatarian Cooking
 3. Add oil and all spices and salt. Sautee for 1-2 minutes
 4. Turn off suatee, add water and beans.
 5. Also add optional peanuts or quinoa.
-6. Pressure cook on high for 25 min
+6. Pressure cook on high for 20 min
 7. Serve with cilantro on top
