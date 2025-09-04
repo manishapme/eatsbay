@@ -18,6 +18,7 @@
 - 2 tsp salt
 - Feta
 - Toasted almonds
+- raisins
 - Couscous
 
 # Instructions
