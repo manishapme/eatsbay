@@ -7,6 +7,7 @@ Inspired by recipe in The New Moosewood Cookbook, by Mollie Katzen.
 - 2 tablespoons butter
 - 1 medium onion, chopped (1 1/2 cups)
 - 1 lb mushrooms sliced
+- 2 cloves garlic, minced
 - 1 teaspoon salt
 - 4 tablespoons soy sauce
 - 4 tablespoons dry sherry
