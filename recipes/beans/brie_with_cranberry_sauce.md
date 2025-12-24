@@ -7,7 +7,7 @@ Sourced from https://downshiftology.com/recipes/baked-brie-with-cranberry-sauce/
 - 2 tablespoons roughly chopped pistachios (optional)
 - Optional garnish: fresh herb sprigs and orange zest (optional)
 - 12-ounce package fresh or frozen cranberries
-- ½ cup honey or maple syrup, or more as desired
+- ½ cup sugar or more as desired
 - ½ cup orange juice
 - ½ cup water
 - orange zest, optional
