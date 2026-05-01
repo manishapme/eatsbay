@@ -9,7 +9,7 @@
 - 1 tsp oregano
 - 1 tsp chopped Serrano or Chile powder
 - 1 cup dried black beans (rinsed)
-- 2 cup water
+- 2 cup water (boiling)
 
 ## Directions
 Here is guaranteed good black beans in the Instapot.
@@ -23,7 +23,7 @@ Here is guaranteed good black beans in the Instapot.
   - 1 tsp oregano
   - 1 tsp chopped Serrano or Chile powder
 3. Add 1 cup dried black beans (rinsed)
-4. Add 2 cup water and stir well
+4. Add 2 cup boiling water and stir well (use boiling water or presoak beans)
 5. Press “cancel” to stop sautéing 
 6. Put on lid, close tight and make sure pressure release is closed
 7. Press “pressure cook”, choose high, and set for 25 minutes by using the plus sign
