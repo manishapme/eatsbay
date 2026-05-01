@@ -2,7 +2,7 @@
 
 - 3 TBL vegetable oil, divided
 - 1 onion, ﬁnely chopped
-- Water
+- Water (boiling)
 - 1 tbs mustard seeds
 - 1 tbs ground coriander
 - 1 tbs Garam Masala
@@ -27,7 +27,7 @@
 
 3. Stir in the lemon juice, garlic, ginger and chile; cook for 1 minute, until fragrant.
 
-4. Add the diced tomatoes (with juice) and 2 cups water; stir, using a wooden spoon to scrape up any browned bits on the bottom of the pot. Stir in the chickpeas. Secure the lid and cook on high pressure for 35 minutes.
+4. Add the diced tomatoes (with juice) and 2 cups boiling water; stir, using a wooden spoon to scrape up any browned bits on the bottom of the pot. Stir in the chickpeas. Secure the lid and cook on high pressure for 35 minutes.
 
 5. Once the cooking is complete, release the pressure naturally for 5 minutes, then quick-release the remaining pressure. Check to make sure the chickpeas are soft enough for your liking; if they are still too hard, cook them on high pressure for another 5 minutes.
 
