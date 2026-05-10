@@ -28,5 +28,6 @@ A simple Gujrati (Indian) food usually served for breakfast, but always tasty. T
 7. Turn off sautee.
 8. Add boiling water. Add cashews. Stir in farina slowly so it doesn't clump.
 9. Close lid, setting instant pot to pressure cook for 3 minutes.
-10. After cooking is done, add in lemon juice, peas and cilantro.
+10. After cooking is done, add in lemon juice, peas and half the cilantro.
 11. Let sit for 5 minutes with lid closed before serving.
+12. Garnish with more cilantro and optional hemp hearts before serving.
